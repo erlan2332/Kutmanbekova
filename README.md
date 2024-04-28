@@ -1,0 +1,2 @@
+# Kutmanbekova
+cosmetology Kurmanbekova
